@@ -11,8 +11,7 @@ jméno Hejný pochází z Hané odvozeninou od slova hajný – myslivec. první
 jsme Česko - slovenská rodina
 
 
-- Hejný Method/ Hejného metoda 
-- Milan Hejný
+- Milan Hejný ... Hejného metoda ...
 - Naďa Hejná 
 - Michal Hejný 
 - Ivan Hejný 
