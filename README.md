@@ -1,1 +1,7 @@
-# 👨🏽‍🤝‍👨🏽 Hejny.org
+# Hejny.org
+
+
+- Hejného metoda 
+- Milan Hejný 
+- ...
+
