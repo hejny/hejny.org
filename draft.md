@@ -1,4 +1,4 @@
-# Hejny.org
+# Rodina Hejných
 
 TODO: Write
 TODO: Approve
